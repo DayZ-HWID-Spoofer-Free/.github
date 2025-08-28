@@ -1,6 +1,5 @@
 # 🚀 DayZ HWID Spoofer Free 2025 New Version 🛡️  
-
-![DayZ Logo](https://via.placeholder.com/150x50?text=DayZ+HWID+Spoofer)  
+ 
 
 **Tired of HWID bans?** Our **100% free** DayZ HWID Spoofer (2025 Edition) lets you bypass restrictions and play without fear! 🔥 
 ---
